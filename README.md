@@ -1,2 +1,0 @@
-# Lojinota
-Lojinota
